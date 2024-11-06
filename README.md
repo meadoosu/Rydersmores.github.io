@@ -1,1 +1,2 @@
 # Rydersmores.github.io
+# Planned.
